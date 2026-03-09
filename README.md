@@ -5,7 +5,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/Keisho-S](https://github.com/Keisho-S)
 
-- 📫 How to reach me **keisho.seiho@gmail.com**
+- 📫 How to reach me **info@keishoseiho.com**
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/KeishoSeiho/](https://www.linkedin.com/in/KeishoSeiho/)
 
